@@ -1,0 +1,1 @@
+- [1618 Putting A Thermo Electric Generator On Solar Panels](https://youtu.be/LWPljHcMjNc)
