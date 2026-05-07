@@ -1,0 +1,4 @@
+- [How to Size a Solar Charge Controller? Avoid This Mistake...](https://youtu.be/dPjFOGd66s8)
+- [Exploring a mass produced solar charge controller](https://youtu.be/Ezh0ylkAyTw)
+- [10A vs 100A solar charge controllers](https://youtu.be/o_tiUuXBjW0)
+- [How to Setup a Solar Charge Controller (menu, battery type & wiring)](https://youtu.be/EBjmAeNeDiE)
