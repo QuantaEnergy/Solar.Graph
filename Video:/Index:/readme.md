@@ -1,1 +1,4 @@
 - [RV Solar 101 : Everything a Beginner Needs to Know !](https://youtu.be/sG6bErD3ZFA)
+- [The Easiest Solar Install | Solar Kits for RV's](https://youtu.be/AOdhIscdez4)
+- [Best Battery System for RV - AGM vs LifePo4](https://youtu.be/uBGXJ75lfoY)
+- 
