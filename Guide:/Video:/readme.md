@@ -1,0 +1,2 @@
+- [Top 10 Beginner Mistakes When Building a DIY Solar System](https://youtu.be/-3dNJAe8XEc)
+- [Electricity Explained: Volts, Amps, Watts, Fuse Sizing, Wire Gauge, AC/DC, Solar Power and more!](https://youtu.be/cX4s-bxn4fs)
