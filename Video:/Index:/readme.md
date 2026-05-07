@@ -5,4 +5,8 @@
 - [Revisiting the Best Way to Attach Solar Panels to Your RV - Part 1](https://youtu.be/aO3SSkT4CwU)
 - [Revisiting the Best Way to Attach Solar Panels to Your RV - Part 2](https://youtu.be/kcVaNkxEHXc)
 - [Unique RV Solar Option (Best way to pivot solar panels)](https://youtu.be/VqdF3C0_8bY)
+- [Solar - Beginner Friendly | The Basics](https://youtu.be/-93D_ey2DVo)
+- [RV Solar Simplified! Simple RV Solar Setup.](https://youtu.be/KCQ0R85vKoM)
+- [Expandable RV Solar Setup First Step! DIY Solar Suitcase.](https://youtu.be/Ng7RedXwOp0)
+- [Dream RV Solar DIY Installation from Start-To-Finish](https://youtu.be/IYQd2PcmUoY)
 - [
