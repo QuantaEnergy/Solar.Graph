@@ -9,4 +9,6 @@
 - [RV Solar Simplified! Simple RV Solar Setup.](https://youtu.be/KCQ0R85vKoM)
 - [Expandable RV Solar Setup First Step! DIY Solar Suitcase.](https://youtu.be/Ng7RedXwOp0)
 - [Dream RV Solar DIY Installation from Start-To-Finish](https://youtu.be/IYQd2PcmUoY)
+- [Dirty truth about RV solar and RV solar panels! #rvsolar #rvlife #offgrid](https://youtu.be/cQmsfGMaqZo)
+- [RV Solar Simplified! Simple RV Solar Setup.](https://youtu.be/KCQ0R85vKoM)
 - [
