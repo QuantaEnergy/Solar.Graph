@@ -1,4 +1,8 @@
 - [RV Solar 101 : Everything a Beginner Needs to Know !](https://youtu.be/sG6bErD3ZFA)
 - [The Easiest Solar Install | Solar Kits for RV's](https://youtu.be/AOdhIscdez4)
 - [Best Battery System for RV - AGM vs LifePo4](https://youtu.be/uBGXJ75lfoY)
-- 
+- [How To Mount Large Solar Panels on RV with NO DRILLING | Winnebago Class A | RVwithTito DIY](https://youtu.be/uvMYv7afUWM)
+- [Revisiting the Best Way to Attach Solar Panels to Your RV - Part 1](https://youtu.be/aO3SSkT4CwU)
+- [Revisiting the Best Way to Attach Solar Panels to Your RV - Part 2](https://youtu.be/kcVaNkxEHXc)
+- [Unique RV Solar Option (Best way to pivot solar panels)](https://youtu.be/VqdF3C0_8bY)
+- [
