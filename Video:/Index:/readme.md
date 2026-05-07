@@ -2,9 +2,8 @@
 - [How to Pick the RIGHT SOLAR PANEL for YOUR Power Station *UNSPONSORED*](https://youtu.be/c_6FdDryt48)
 - [DIY SOLAR Battery Banks - Parallel? Series? Both??: What, Why & HOW! Beginner Friendly](https://youtu.be/EDLxolJ0QxI)
 - [Building a 12V Battery & Solar System: Do's and Don'ts and All the Basics You Need to Know](https://youtu.be/PG7RzOyj3ME)
-- [
-
-- 
+- [12V 1500W DIY Solar Generator - Step by Step](https://youtu.be/OwfGLu8IY_M)
+- [DIY Solar: We’re Told Never Do This… So I Did](https://youtu.be/Na4LTD1M6nw)
 - [RV Solar 101 : Everything a Beginner Needs to Know !](https://youtu.be/sG6bErD3ZFA)
 - [The Easiest Solar Install | Solar Kits for RV's](https://youtu.be/AOdhIscdez4)
 - [Best Battery System for RV - AGM vs LifePo4](https://youtu.be/uBGXJ75lfoY)
