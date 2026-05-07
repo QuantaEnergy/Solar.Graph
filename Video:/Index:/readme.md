@@ -12,3 +12,7 @@
 - [Dirty truth about RV solar and RV solar panels! #rvsolar #rvlife #offgrid](https://youtu.be/cQmsfGMaqZo)
 - [RV Solar Simplified! Simple RV Solar Setup.](https://youtu.be/KCQ0R85vKoM)
 - [How To Build A Solar Setup: COMPLETE Step-by-Step, DIY Guide (12V, 2000W)](https://youtu.be/L4HiYD1i71A)
+- [Complete 12v or 24v off grid solar tutorial. Beginner Friendly! Every step you will need.](https://youtu.be/tvPqI4VoXfo)
+- [How To Solar Power EVERYTHING In Your RV | Trailer When Camping Off Grid!](https://youtu.be/AlVhf8IzrkA)
+- [How to Pick the RIGHT SOLAR PANEL for YOUR Power Station *UNSPONSORED*](https://youtu.be/c_6FdDryt48)
+- [
