@@ -11,4 +11,4 @@
 - [Dream RV Solar DIY Installation from Start-To-Finish](https://youtu.be/IYQd2PcmUoY)
 - [Dirty truth about RV solar and RV solar panels! #rvsolar #rvlife #offgrid](https://youtu.be/cQmsfGMaqZo)
 - [RV Solar Simplified! Simple RV Solar Setup.](https://youtu.be/KCQ0R85vKoM)
-- [
+- [How To Build A Solar Setup: COMPLETE Step-by-Step, DIY Guide (12V, 2000W)](https://youtu.be/L4HiYD1i71A)
