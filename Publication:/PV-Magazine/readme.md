@@ -10,3 +10,9 @@ https://www.pv-magazine.com/2026/05/07/sonnenkraft-launches-480-w-back-contact-t
 https://www.pv-magazine.com/2026/04/29/resisting-rust-in-solar/
 
 https://www.pv-magazine.com/2026/05/07/prototype-of-pvt-driven-dual-source-heat-pump-with-borehole-thermal-energy-storage-achieves-coefficient-of-performance-of-4-07/
+
+# Perovskite
+Search: https://www.pv-magazine.com/?s=Perovskite
+
+## Research:
+https://www.pv-magazine.com/2026/04/30/scientists-discover-why-lead-halide-solar-perovskites-work-efficiently-despite-being-structurally-messy/
