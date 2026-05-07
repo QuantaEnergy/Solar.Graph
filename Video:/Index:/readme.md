@@ -1,3 +1,10 @@
+- [BEGINNER FRIENDLY Step-by-Step: DIY SOLAR GENERATOR for Emergency Power, RV, Shed... Ampere Time](https://youtu.be/9BgM0PWPjZU)
+- [How to Pick the RIGHT SOLAR PANEL for YOUR Power Station *UNSPONSORED*](https://youtu.be/c_6FdDryt48)
+- [DIY SOLAR Battery Banks - Parallel? Series? Both??: What, Why & HOW! Beginner Friendly](https://youtu.be/EDLxolJ0QxI)
+- [Building a 12V Battery & Solar System: Do's and Don'ts and All the Basics You Need to Know](https://youtu.be/PG7RzOyj3ME)
+- [
+
+- 
 - [RV Solar 101 : Everything a Beginner Needs to Know !](https://youtu.be/sG6bErD3ZFA)
 - [The Easiest Solar Install | Solar Kits for RV's](https://youtu.be/AOdhIscdez4)
 - [Best Battery System for RV - AGM vs LifePo4](https://youtu.be/uBGXJ75lfoY)
